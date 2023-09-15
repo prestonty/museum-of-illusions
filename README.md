@@ -1,0 +1,1 @@
+Experimenting with the parallax effect because the Firewatch website was cool
